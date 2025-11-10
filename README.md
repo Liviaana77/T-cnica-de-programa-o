@@ -22,4 +22,4 @@ Sinta-se à vontade para explorar e, se necessário, utilizar como referência p
 
 ---
 
-**Autor:** [Seu Nome Completo]
+**Autor:** [Ana Livia B.]
